@@ -1,4 +1,5 @@
-Kapitel 1: Roseneck
+Roseneck
+--------
 
 Dr. Axel Stoll verlässt mit Peter Schmitt, Mario und ein paar anderen das Wirtshaus „Roseneck“ am Britzer Damm in Berlin-Neukölln. Stoll verabschiedet sich von den anderen, zündet sich eine Zigarette an zieht erst mal genüsslich. Dann macht er sich mit seiner zerfetzen und vergilbten Mappe unter dem Arm auf den Heimweg.
 Ich löse mich aus dem Schatten hinter der Aral-Tankstelle und folge der hageren, dürren Gestalt unauffällig. Obwohl es nicht kalt ist, trägt Stoll für den kurzen Weg einen langen Mantel.
